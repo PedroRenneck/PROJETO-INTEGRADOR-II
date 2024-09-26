@@ -20,7 +20,7 @@ renneckpedro2006@gmail.com
 Ensino fundamental concluído em 2021-Escola estadual São Francisco, Atualmente cursando Informatica de nível médio na forma integrada-2022.
 
 ## FORMAÇÃO COMPLEMENTAR
-Projeto de ensino intitulado "Clube de Libras" carga horaria:60h
+Projeto de ensino intitulado "Clube de Libras" carga horaria:60h [Certificado](PEDRO RENNECK-Libras.pdf)
 
 
 1. Descrição da atividade conforme certificado
