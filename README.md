@@ -21,7 +21,7 @@ Ensino fundamental concluído em 2021-Escola estadual São Francisco, Atualmente
 
 ## FORMAÇÃO COMPLEMENTAR
 Projeto de ensino intitulado "Clube de Libras" carga horaria:60h [Certificado](PEDRO_RENNECK-Libras.pdf)
-
+Curso livre de preparação para vestibular, carga horaria:20h [Certificado](Pedro_Renneck-Curso_do_Danilo.pdf)
 
 1. Descrição da atividade conforme certificado
 Carga horária: 
